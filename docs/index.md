@@ -1,4 +1,5 @@
 ## GDG Resources
 
-some something
-kjvcbjcxbzvbjhcsbvjkh
+Hello this is team gdg
+My name is Aniket Patil
+
